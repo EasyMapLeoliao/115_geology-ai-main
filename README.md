@@ -1,1 +1,0 @@
-# 115_geology-ai-main
